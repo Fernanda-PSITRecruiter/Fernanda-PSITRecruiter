@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Fernanda-PSITRecruiter
+- 👀 I’m interested in meeting developers of all size and color!
+- 🌱 I’m currently working as an IT Recruiter so I'd like to share new and exciting opportunities with anyone who's interested!
+- 📫 You can read about and contact me at https://www.linkedin.com/in/fernanda-mata-a9861921a/ 
+- 💻 You can read about who I'm recruiting for (Parallel Staff) at https://parallelstaff.com/
+- 👩‍💻 e-mail📩: fernanda.mata@parallelstaff.com
+- 💙 Build Parallel Teams, With Unparalleled Talent! 
